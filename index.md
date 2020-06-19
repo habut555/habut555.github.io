@@ -9,3 +9,4 @@ bzw. ein Hackstock
 * HonK
 * Null
 
+> 5 Minuten vor der Zeit, ist des Soldaten Puenktlichkeit
